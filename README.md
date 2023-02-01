@@ -1,2 +1,2 @@
-# b-l-msonu-al-mas-
+#bolumsonucalismasi
 bölümsonuçalışması
